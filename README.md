@@ -34,4 +34,4 @@ Outils & Technologies
 8 Google Workspace
 Objectifs professionnels
 Contribuer à des projets éducatifs et de développement en tant que consultant éducatif, officier M&E;, data
-analyst ou spécialiste EdTech au sein d’organisations telles que UNICEF, ONG internationales et
+analyst ou spécialiste EdTech au sein d’organisations telles que UNICEF, ONG internationales.
